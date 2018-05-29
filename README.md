@@ -1,1 +1,13 @@
-# young
+Birds flying high
+You know how I feel
+Sun in the sky
+You know how I feel
+Breeze driftin' on by
+You know how I feel
+
+It's a new dawn
+It's a new day
+It's a new life
+For me
+And I'm feeling good
+I'm feeling good
